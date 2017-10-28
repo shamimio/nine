@@ -1,0 +1,1 @@
+<article></article><input data="dot"><a href="https://vk.com/away.php?to=https://vk.com/page-155750927_53251826&cc_key="><article>che</article><article>lsea  </article><article>v</article><article>s </article><article>Bourn</article><article>emouth  </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
